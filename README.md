@@ -1,6 +1,5 @@
 # Fundamentals-of-Sustainability-and-Technology
 Fundamentals of Sustainability and Technology
-# Fundamentals-of-Sustainability-and-Technology
 ## 🎓 Certifications & Achievements
 
 ### 🏅 2025
